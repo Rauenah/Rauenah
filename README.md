@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Rhauenah
+# 👩🏻‍💻 Rauenah
 
 **`Analista de Dados Em Formação`**
 
